@@ -1,4 +1,6 @@
-Introduction: The Clarity Lens
+![The Clarity Lens](../The%20Clarity%20Lens%20Intro.png)
+
+# Introduction: The Clarity Lens
 
 You cannot intentionally build the future until you have a shared understanding of the present.
 
