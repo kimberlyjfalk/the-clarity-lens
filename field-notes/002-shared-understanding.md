@@ -1,6 +1,6 @@
 THE CLARITY LENS | PART I: Understanding the Present
 
-FIELD NOTE 003
+FIELD NOTE 002
 
 I've been thinking about what a true shared understanding of an organization actually looks like.
 
