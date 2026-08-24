@@ -1,3 +1,5 @@
+![The Clarity Lens - Field Note 005](../005-company-story-before-product-story.png)
+
 THE CLARITY LENS | PART I: Understanding the Present
 
 FIELD NOTE 005
