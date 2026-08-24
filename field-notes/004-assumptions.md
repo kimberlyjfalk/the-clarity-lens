@@ -1,3 +1,5 @@
+![The Clarity Lens - Field Note 004](../004-assumptions-and-shared-understanding.png)
+
 THE CLARITY LENS | PART I: Understanding the Present
 
 FIELD NOTE 004
