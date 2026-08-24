@@ -1,4 +1,4 @@
-THE CLARITY LENS | PART I: Understanding the Present
+![The Clarity Lens - Field Note 002](002-what-shared-understanding-looks-like.png)THE CLARITY LENS | PART I: Understanding the Present
 
 FIELD NOTE 002
 
