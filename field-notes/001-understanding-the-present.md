@@ -1,4 +1,4 @@
-![The Clarity Lens | Field Note 001](../The%20Clarity%20Lens%20Field%20Note%20001.png)
+![The Clarity Lens - Field Note 001](../The%20Clarity%20Lens%20Field%20Note%20001.png)
 
 # The Clarity Lens | Part I: Understanding the Present
 
