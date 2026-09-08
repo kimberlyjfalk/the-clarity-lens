@@ -1,5 +1,8 @@
 THE CLARITY LENS | PART I: Understanding the Present
+
 Reflection: The Work Before the Work
+
+![The Clarity Lens — Reflection 001](001-reflection.png)
 
 Organizations spend a lot of time thinking about where they are and where they want to go.
 
